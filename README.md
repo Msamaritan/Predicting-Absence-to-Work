@@ -9,4 +9,4 @@ Thanks to Machine learning, we can now predict the absence to work with the help
 
 > I would love to engage with you if anyone want to! 
 - Email : byrisrini13@gmail.com 
-- LinkedIn : www.linkedin.com/byri-manoj-s
+- LinkedIn : https://www.linkedin.com/in/byri-manoj-s/
